@@ -1,0 +1,1 @@
+swetharka app resources
